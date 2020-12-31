@@ -1,4 +1,4 @@
-### Hi there, I'm Abdulmalik 👋
+### Hi there, I'm Dan 👋
 
 ## I'm a Gamer and Developer
 
